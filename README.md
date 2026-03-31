@@ -13,4 +13,4 @@
 
 ### 📝 Additional Notes
 > [!IMPORTANT]
-> Please consider scheduling interviews between **April 6th and April 10th, 2026**. Thank you!
+> Please consider scheduling interviews between **April 6th and April 10th**. Thank you!
